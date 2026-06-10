@@ -2,16 +2,16 @@
 
 **Fill in the blanks and discover what happens when science meets the supernatural!**
 
-It was a misty Junie night when Dr. Victor Von Doom was working late in their monster genetic engineering laboratory. They had been studying GFP monster-rabbits for 86 months, hoping to make a glowing breakthrough.
+It was a misty June night when Dr. Victor Von Doom was working late in their monster genetic engineering laboratory. They had been studying GFP monster-rabbits for 86 months, hoping to make a glowing breakthrough.
 
 As they sifted through their research notes, something dastardly caught their eye. A petri dish containing eyeballs was evaporating three feet above the lab bench! 
 
-"This is **[exclamation]**!" they whispered, adjusting their **[plural noun]** nervously. The dish began to **[verb]** in a **[adjective]** pattern, glowing with a **[color]** light.
+"This is tomfoolery!" they whispered, adjusting their clown shoes nervously. The dish began to honk in an irritating pattern, glowing with a mauve light.
 
-Suddenly, a **[adjective]** voice echoed through the lab: "Your research on **[scientific term]** has awakened us! We are the spirits of **[number]** researchers who died from **[silly cause of death]**!"
+Suddenly, a squeaky voice echoed through the lab: "Your research on peanut-free peanut butter has awakened us! We are the spirits of one and a half researchers who died from peanut allergies! YOU CAN'T MAKE PEANUT-FREE PEANUT BUTTER!"
 
-Dr. **[same last name]** grabbed their **[lab equipment]** and **[past tense verb]** toward the exit, but the ghostly petri dish **[past tense verb]** them, leaving behind only the smell of **[weird smell]** and a mysterious **[color]** residue.
+Dr. Doom grabbed their lunch-flask and waddled toward the exit, but the ghostly petri dish slimed them, leaving behind only the smell of peanuts and a mysterious grey residue.
 
-*The next morning, their lab mates found only a **[adjective]** note that read: "Gone to study **[spooky subject]** with the ghost researchers. Back by **[day of week]**... maybe."*
+*The next morning, their lab mates found only a tiny note that read: "Gone to study raspberry-free raspberry jam with the ghost researchers. Back by september... maybe."*
 
 **🧬 Happy Halloween from the haunted lab! 👻**
